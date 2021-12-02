@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @siiiidddexe
 - 👀 I’m interested in live wallpapers
-- 🌱 I’m currently learning Engineering 
+- 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on wallpaper ideas
 - 📫 How to reach me? on ig:siiiddd_exe
 
